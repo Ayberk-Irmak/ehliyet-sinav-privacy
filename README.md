@@ -1,0 +1,1 @@
+# ehliyet-sinav-privacy
